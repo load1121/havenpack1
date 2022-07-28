@@ -1,2 +1,2 @@
-# havenpack1
-fuck5m
+# 헤이븐 본팩 업로드.
+discord.gg/fuck5m
